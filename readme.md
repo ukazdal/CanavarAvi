@@ -1,1 +1,1 @@
-https://gemecanavar.web.app
+https://monsterhunttwo.web.app
